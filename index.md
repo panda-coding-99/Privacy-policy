@@ -1,4 +1,4 @@
-# Privacy Policy for تطبيق صحيح البخاري بە کوردی
+# Privacy Policy for  صحيح البخاري بە کوردی
 
 **Effective Date:** 2025-12-25  
 **Email:** panda.coding99@gmail.com
